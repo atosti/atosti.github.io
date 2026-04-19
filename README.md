@@ -1,3 +1,0 @@
-## Welcome!
-
-Enjoy your stay.
